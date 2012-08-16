@@ -1,0 +1,1 @@
+dan ternyata bambang... yang menguatkan akyuuu,,,
