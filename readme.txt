@@ -1,1 +1,1 @@
-dan ternyata bambang... yang menguatkan akyuuu,,,
+dan ternyata bambang... yang menguatkan akyuuu,,, uooo
